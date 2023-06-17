@@ -1,2 +1,2 @@
-hello guys wassup!!
+ready for misssion boys!!
 ok done guys
