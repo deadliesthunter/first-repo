@@ -3,3 +3,7 @@ ok done guys
 
 ## hello world
 
+
+## working flow
+
+1.open indx.hello world.
